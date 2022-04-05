@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @f-a-n-t-a
+- Germany
+- 14
