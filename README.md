@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @f-a-n-t-a
+- 👋 Hi, I’m [@f-a-n-t-a](https://github.com/f-a-n-t-a)
 - Germany
 - 14
